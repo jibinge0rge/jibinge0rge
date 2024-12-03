@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>Junior Domain Analyst @ Prevalent AI
+<br>Security Domain Analyst @ Prevalent AI
 
 
 ## 🌐 Socials:
